@@ -1,1 +1,1 @@
-juke
+not u tryna scam me LOL
